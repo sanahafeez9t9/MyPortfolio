@@ -46,7 +46,7 @@ Navigate through the different sections to explore my projects, learn about my s
 
 ## 📞 Contact
 
-Feel free to reach out to me through my portfolio website or connect with me on [LinkedIn](YOUR_LINKEDIN_PROFILE_URL) or [Twitter](YOUR_TWITTER_PROFILE_URL). 🤝
+Feel free to reach out to me through my portfolio website or connect with me on [LinkedIn](linkedin.com/in/sanahafeez) or [Email](sanahafeez8oct@gmail.com). 🤝
 
 ---
 
